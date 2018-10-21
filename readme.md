@@ -1,0 +1,1 @@
+Il latino fa schifo.
